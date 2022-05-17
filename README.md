@@ -1,1 +1,1 @@
-# Lab1
+# Lab1 Melnychuk Amina 1KH-20b
